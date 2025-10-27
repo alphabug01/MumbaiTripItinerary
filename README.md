@@ -1,4 +1,4 @@
-# 🏙️ 3-Day Mumbai Itinerary (First Visit – Thane Base)
+# 🏙️ 3-Day Mumbai Itinerary
 
 **Landing:** 11:15 AM, Mumbai Airport (T2)  
 **Hotel/Base:** Thane  
